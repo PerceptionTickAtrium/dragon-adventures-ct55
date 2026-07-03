@@ -1,4 +1,4 @@
-#  
+#  Experience dragon adventures like never before with smart dragon adventures Scripts, the #1 Script. Includes auto-collect and auto-upgrade for
 
 
 
